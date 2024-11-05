@@ -2,4 +2,7 @@
 
 Deploy-Mate Architecture:-
 
-https://youtu.be/Y9TfLRUOqOc
+
+
+https://github.com/user-attachments/assets/79a34720-b8ca-43c6-a303-3f81148d3c12
+
